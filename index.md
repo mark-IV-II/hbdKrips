@@ -1,6 +1,6 @@
 ---
 title: Happy Birthday Kripa
-description: Inniya puranthanal vazhthukkal
+description: Inniya puranthanal vazhthukkal Kirupakaran
 permalink: /
 ---
 
