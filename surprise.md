@@ -5,7 +5,8 @@ permalink: /surprise
 
 # Surprise Surprise
 
-![](https://tenor.com/view/ondel-ondel-in-love-gift-surprise-tada-for-you-gif-14467909)
+![](https://media.giphy.com/media/JqDeI2yjpSRgdh35oe/giphy.gif)
+
 
 
 ![](/media/ss.jpg)
