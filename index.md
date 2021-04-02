@@ -34,4 +34,4 @@ Smash into next year in style
 
 ![](/media/vid1.mp4)
 
-
+We still have something for you. [Click here](/hbdKrips/surprise) to find out.
