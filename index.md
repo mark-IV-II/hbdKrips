@@ -32,4 +32,6 @@ I hope that your birthday is as much fun as you are, but that sets a very high s
 
 Smash into next year in style
 
+![](https://user-images.githubusercontent.com/58716239/113443038-cb86e380-940e-11eb-9725-4a27ebe406d5.gif)
+
 We still have something for you. [Click here](/hbdKrips/surprise) to find out.
